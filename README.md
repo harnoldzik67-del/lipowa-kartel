@@ -1,0 +1,1 @@
+# lipowa-kartel
